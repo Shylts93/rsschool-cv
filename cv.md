@@ -1,7 +1,10 @@
 # CV Aleh Shulhan
 
 ## Personal data/ contacts: 
-Born: 12.01.1993 y., Belarus. Tel. +48-506-413-183, (Telegram- @Oshylts) 
+Born: 12.01.1993 y., Belarus. Tel. +48-506-413-183, (Telegram- @Oshylts)!
+
+[My instagram](https://www.instagram.com/oleg__shulgannn/)
+
 
 ### About me: 
 After graduating from the institute, he worked for 5 years in the field of law in the city of Mogilev. 
