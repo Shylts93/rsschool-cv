@@ -18,3 +18,5 @@ At the present time I am trying to change the field of activity and I want to fi
 - Russian- native,
 - Polish - B2, 
 - English - B1.
+
+![My Photo](https://user-images.githubusercontent.com/117005132/205979282-947f5d11-2c9c-4df9-8d5b-e88ce491de1c.PNG)
